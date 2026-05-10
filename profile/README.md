@@ -1,1 +1,1 @@
-## Inventors Academy
+## Inventors Workshop
