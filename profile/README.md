@@ -1,1 +1,1 @@
-## LabBench Academy
+## Inventors Academy
